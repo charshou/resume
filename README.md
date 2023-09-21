@@ -1,1 +1,1 @@
-somewhat updated resume
+Charlie Shou Resume
